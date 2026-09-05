@@ -1,0 +1,3 @@
+Groupe de religieux, chassant les démons comme [[Les Hérétiques]].Les pilotes sont des saints désignés, souvent enfermés dans leur armure à vie. Leur dogme : un cœur ne peut être forgé que par le sacrifice volontaire d'un croyant, rendant leurs cœurs d'autant plus puissants. Ils considèrent toute autre méthode comme un blasphème.
+
+Ils altèrent leur [[Cœur Magique]] avec leur propre rituels nécessitant le sacrifice d'un fidèle. Ce procédé est un secret connue uniquement par les personnes les plus puissantes de l'Ordre.

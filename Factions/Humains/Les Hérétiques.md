@@ -1,0 +1,1 @@
+Humain corrompu par les démons, ils collaborent avec eux pour mettre l'humanité à genou.

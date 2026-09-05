@@ -1,0 +1,1 @@
+Une horde de démons rendu fou par les combats, la simple mention de l'arrivé de La Marée sur un champs de batailles, fait fuir Humain comme Démon.

@@ -1,0 +1,1 @@
+Ce groupe est responsable de la création des nouvelles armes des Démons. Ils utilisent les humains pour créer leur armes.

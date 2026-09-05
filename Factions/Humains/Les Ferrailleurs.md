@@ -1,0 +1,1 @@
+Ecumeurs des champs de bataille, il récupère les pièces des Mechs tombé au combat. Ils revendent leurs pièces au plus offrant, ou alors les utilisent pour réparer ou bien construire leur propre Mechs.

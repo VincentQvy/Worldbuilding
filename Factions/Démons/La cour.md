@@ -1,0 +1,1 @@
+Les différents Archidémons constituent La Cour, ils sont les leaders des démons, bien que chaque Archidémons aie ces propres intérêts, ils peuvent s'accorder pour se battre ensemble pour vaincre les Humains.

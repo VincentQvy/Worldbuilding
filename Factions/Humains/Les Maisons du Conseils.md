@@ -1,0 +1,1 @@
+Avant [[L'union]], ces maisons était les dirigeants des pays qui se sont mis sous une seule bannière. Ils dirigent le nouveau pays en essayant de concilier les intérêts de chacun.
